@@ -1,1 +1,1 @@
-# finora-mobile
+# Finora - Wealth Lab 🧪
